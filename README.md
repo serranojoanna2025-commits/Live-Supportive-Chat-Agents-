@@ -1,1 +1,1 @@
-MAGIC 
+Live Supportive Chat 
